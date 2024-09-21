@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **juliechenmedicine@gmail.com**
 
-- ⚡ Fun fact **I am a great cook. When I invite people over I make it my business that no one leaves with an empty stomach**
+- ⚡ Fun fact **I am a great cook. When I invite people over I make it my business that no one leaves unfed with flavorful food.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
